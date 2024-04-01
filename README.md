@@ -1,4 +1,4 @@
-Hello 👋 I'm @GithubWafi.
+Hello 👋 I'm @GithubWaddle.
 
 I like many things. One of them is coding. I like to learn too. I'm learning how to makes games right now.
 
